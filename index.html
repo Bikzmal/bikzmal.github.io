@@ -1,1 +1,0 @@
-# bikzmal.github.io
